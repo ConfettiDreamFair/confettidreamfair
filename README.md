@@ -7,7 +7,7 @@
 *You may laugh unexpectedly!* <br/>
 *You may become part of the show!* <br/>
 *You may make questionable (but fun) decisions!* <br/>
-*You will leave something behind (a message, a memory, a little chaos)* <br/>
+*You will leave something behind (a message, a memory, a little chaos! whatever works!)* <br/>
 
 #### <p align="center"> In return, we offer:
 
