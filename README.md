@@ -46,7 +46,7 @@ Everything will be fine.
 
 ---
 
-## <p align="center"> 🦊🎩 THE QUICK BROWN FOX <br/>
+## <p align="center"> 🦊🪄 THE QUICK BROWN FOX <br/>
 ### <p align="center">(The Magician)
 
 > “You blinked.”
